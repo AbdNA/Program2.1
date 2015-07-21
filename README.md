@@ -8,4 +8,4 @@
 
 Окно результатов:
 
-[! ]alt text (http://cs628520.vk.me/v628520088/f6c4/_lV3Zrqj7GI.jpg)
+[!] alt text (http://cs628520.vk.me/v628520088/f6c4/_lV3Zrqj7GI.jpg)
